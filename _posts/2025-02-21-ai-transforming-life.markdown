@@ -1,0 +1,1 @@
+AI is reshaping daily life and various industries, while posing new challenges and ethical questions.
